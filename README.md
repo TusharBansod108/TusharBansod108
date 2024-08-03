@@ -13,7 +13,7 @@
 
 - 👨‍💻 All of my projects are available at: [https://github.com/TusharBansod108/](https://github.com/TusharBansod108/TusharBansod108)
 
-- 📫 How to reach me: *patilaaditya2019@gmail.com*
+- 📫 How to reach me: *tusharbansod108@gmail.com*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
